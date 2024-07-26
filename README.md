@@ -1,0 +1,1 @@
+ORIGINAL TEMPLATE DOWNLOADED FROM: [https://themewagon.com/themes/travela/](https://themewagon.com/themes/travela/).
